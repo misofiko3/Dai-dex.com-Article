@@ -30,7 +30,7 @@ Why keep the good news to yourself? Invite friends to DAI-DEX and watch your ear
 - **Level 2**: 7% commission from their referrals.
 - **Level 3**: 4% commission from the next level down.
 
-Share the wealth and build a passive income stream that grows with your network!
+Share the wealth and build a passive income stream that grows with your network! Get started with our exclusive referral link: [https://dai-dex.com/?ref=misofiko3](https://dai-dex.com/?ref=misofiko3).
 
 ### 4. **Exclusive Representative Salary Program**
 Take your earnings to the next level with our rewarding representative salary structure, designed for ambitious go-getters:
@@ -68,7 +68,7 @@ Getting started is a breeze with our wide range of payment options, tailored for
 
 ## How to Start Winning with DAI-DEX
 
-1. **Join the Movement**: Head to dai-dex.com and sign up in minutes.
+1. **Join the Movement**: Sign up in minutes using our referral link: [https://dai-dex.com/?ref=misofiko3](https://dai-dex.com/?ref=misofiko3).
 2. **Fund Your Future**: Deposit $20 or more into your chosen plan.
 3. **Pick Your Plan**: From AI Genesis to Quantum Leap, select the path that fits your vision.
 4. **Watch the Profits Roll In**: Our AI does the heavy lifting, delivering daily returns automatically.
@@ -93,7 +93,7 @@ No matter your budget, there’s a plan to fuel your financial ambitions!
 | Level 2        | 7%              | $70                      |
 | Level 3        | 4%              | $40                      |
 
-Build your team and watch your income multiply effortlessly!
+Build your team and watch your income multiply effortlessly with our referral link: [https://dai-dex.com/?ref=misofiko3](https://dai-dex.com/?ref=misofiko3)!
 
 ## Representative Salaries: Lead and Earn
 
@@ -119,6 +119,6 @@ DAI-DEX Trading Limited is just getting started. With AI at its core, we’re se
 
 ## Ready to Transform Your Financial Future?
 
-DAI-DEX Trading Limited (dai-dex.com) is your all-in-one solution for crypto success, blending AI brilliance with unbeatable opportunities. Grow your capital, earn passively through referrals, and lead as a representative—all starting with as little as $20. Don’t wait—visit dai-dex.com today and kickstart your journey to financial freedom with a platform that’s built to win!
+DAI-DEX Trading Limited (dai-dex.com) is your all-in-one solution for crypto success, blending AI brilliance with unbeatable opportunities. Grow your capital, earn passively through referrals, and lead as a representative—all starting with as little as $20. Don’t wait—sign up today using our exclusive referral link [https://dai-dex.com/?ref=misofiko3](https://dai-dex.com/?ref=misofiko3) and kickstart your journey to financial freedom with a platform that’s built to win!
 
 For more details and to dive in, head to dai-dex.com now—your profits are waiting!
